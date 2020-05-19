@@ -1,0 +1,1 @@
+# MagazinBurgera.github.io
